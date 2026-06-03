@@ -1,2 +1,3 @@
-<p align="center">  </p>
-<p align="center"> <img width="600" height="600" alt="kinlist" src="https://files.catbox.moe/axxmrd.gif" /> </p>
+<p align="center"> I like Albert Wesker. </p>
+
+<p align="center"> Click... if you DARE!?!? -> https://www.pinterest.com/adachqui/mah-kinlist-xd/ </p>
